@@ -1,2 +1,2 @@
 🍋
-[Cave Story Modding Resources[(https://resources.cavestorymoddingcommunity.com)
+[Cave Story Modding Resources](https://resources.cavestorymoddingcommunity.com)
