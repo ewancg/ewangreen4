@@ -3,4 +3,4 @@
 - [twitter](https://twitter.com/ewangreen05)
 - [ptweb.me](https://www.ptweb.me/profile/135)
 
-[oh hell nah what they do to squidderd](http://this-isnt-a-link-stupid)
+[look here for enlightenment](http://this-isnt-a-link-stupid)
