@@ -1,1 +1,1 @@
-Please contact me for work proposals. [email](https://aemail.com/xkg9)
+Please contact me for work offers. [email](https://aemail.com/xkg9)
